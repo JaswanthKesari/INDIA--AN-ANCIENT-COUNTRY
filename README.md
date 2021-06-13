@@ -32,7 +32,7 @@ The highly civilized Harappans knew the art of growing cereals, and wheat and ba
 
 #### **The Indian subcontinent has been populated for around 5,000-6,000 years and its peoples joined together to form a civilization in roughly 1500 BCE when they created the Vedic Civilization, which laid out the foundations of Hinduism. Over the following millennia, the country passed through different dynasties, with modern-day India being founded in 1947, once the country won its independence from the British Empire.**
 
-####TO KNOW MORE  ABOUT INDIA CLICK THE IMAGE
+#### TO KNOW MORE  ABOUT INDIA CLICK THE IMAGE
 [![Ancient India video](https://i.ytimg.com/an_webp/ofgIDZHTjTQ/mqdefault_6s.webp?du=3000&sqp=CIjPloYG&rs=AOn4CLDX9HaQQeKo-E17XqBfV1wVxI6KSg)](https://www.youtube.com/watch?v=ofgIDZHTjTQ)
 
 
